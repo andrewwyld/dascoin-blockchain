@@ -1,4 +1,4 @@
-DasCoin Blockchain
+Mortgage Backed Bond Coin! Ripped cold from the DasCoin Blockchain
 ==============
 
 
